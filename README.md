@@ -1,2 +1,2 @@
-# SDKTCR-Transcripts
-Transcripts of Steven D Kelley TruthCatRadio Vids
+# Epstein-What-About-The-Getty-Transcripts
+Transcript of parts 1 and 2 Steven D Kelley TruthCatRadio Vids from July 19, 21, 23, 2025.
